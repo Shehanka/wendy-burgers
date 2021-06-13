@@ -1,1 +1,1 @@
-# Wendy Burgers 
+# Wendy Burgers 🍔
